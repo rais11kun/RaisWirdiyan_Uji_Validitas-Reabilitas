@@ -1,0 +1,1 @@
+# RaisWirdiyan_Uji_Validitas-Reabilitas
